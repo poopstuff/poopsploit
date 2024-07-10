@@ -1,3 +1,3 @@
-# poopsploit beta
+# scamtools X
 > [!NOTE]
-> poopsploit bypasses byfron with the skibifron api which mitigates anti-tamper
+> scam scammers instantly
